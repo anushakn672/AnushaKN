@@ -1,4 +1,4 @@
-# AnushaKN
+
 # Hi there, I'm Anusha KN 👋
 
 ### Associate Business Analyst · Bangalore, India
